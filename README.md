@@ -5,7 +5,7 @@
   
 - ⚙️ My [portfolio](https://portfolio-space-git-main-ixpd.vercel.app/)
 
-- 📫 How to reach me **daniel@meddeiros.tech**  
+- 📫 How to reach me **danielpedro0m@gmail.com**  
   
 
 <br/>  
